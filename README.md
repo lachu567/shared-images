@@ -1,1 +1,1 @@
-<img src="bio.png">
+![Uploading bio.png…]()
