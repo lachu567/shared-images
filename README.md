@@ -1,1 +1,2 @@
-<img width="978" height="1254" alt="bio" src="https://github.com/user-attachments/assets/93df7ae0-2aa5-4293-b3f4-f294eb0cd20b" />
+<img width="407" height="547" alt="WhatsApp Image 2026-06-16 at 19 46 36 (1)" src="https://github.com/user-attachments/assets/89cfc6f7-683b-4d41-9ec6-7bb083e16937" />
+
